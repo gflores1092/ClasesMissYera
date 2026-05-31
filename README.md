@@ -65,11 +65,13 @@ Mi misión es hacer que la educación tecnológica sea accesible, entretenida y 
 
 Si quieres colaborar, invitarme a un evento, contratarme, generar alguna oportunidad de negocio o simplemente conversar:
 
-- 💌 **Correo:** gflores1092@gmail.com  
-- 💼 **LinkedIn:** [linkedin.com/in/gflores1092](https://www.linkedin.com/in/gflores1092/)
-- 💼 **Instagram:** [instagram.com/layeraxd/](https://www.instagram.com/layeraxd/)
-- 💼 **Tiktok:** [tiktok.com/@layeraxd](https://www.tiktok.com/@layeraxd)
-- 🎬 **YouTube:** [youtube.com/@layeraxd](https://www.youtube.com/@layeraxd)
+- 💌 **Correo:** hola@missyera.com
+- **Página web:** https://missyera.com/
+- **WhatsApp:** (+51) 944189280
+- 💼 **LinkedIn:** [linkedin.com/in/soymissyera](https://www.linkedin.com/in/soymissyera/)
+- 💼 **Instagram:** [instagram.com/soymissyera/](https://www.instagram.com/soymissyera/)
+- 💼 **Tiktok:** [tiktok.com/@soymissyera](https://www.tiktok.com/@soymissyera)
+- 🎬 **YouTube:** [youtube.com/@soymissyera](https://www.youtube.com/@soymissyera)
 
 ---
 
